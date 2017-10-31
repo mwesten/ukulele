@@ -31,3 +31,55 @@ Baritone Ukulele
 The baritone ukulele is often viewed as being more like a guitar than a ukulele as not only is it tuned using linear tuning, but its strings are tuned the same as the top four strings of the guitar. The baritone ukulele is usually around 30 inches in length and has upwards of 18 frets, depending on model. The linear tuning gives the baritone the greatest range of any of the ukulele types. It is a much bigger instrument than the soprano, tenor or concert, and is often used by guitarists who wish to learn the ukulele, or by ukulele players who would eventually like to progress on to playing the guitar.
 
 The baritone ukulele is standard-tuned to D3-G3-B3-E4, and therefore requires completely different music and chord charts from the tenor, concert and soprano ukuleles (although the chord shapes will be the same on the baritone ukulele, the chord names will be different). The baritone ukulele can be strung with either nylon polymer strings or a combination of nylon polymers and metal wound strings, depending on personal preference. A metal wound string will give a warmer tone to the baritone uke, whereas nylon polymer strings will make the baritone sound more 'ukuleleish'. The baritone ukulele is the most expensive ukulele to buy, because of its larger body. Also, there aren't as many free learning resources covering how to play the baritone ukulele as opposed to what is available for the tenor, concert and soprano, making it a less-desirable starter instrument for many who look at playing the ukulele - despite its bridging ability between the ukulele and the guitar. Baritone ukuleles are often used by blues players, and they tend to suit male singers better than the high soprano or concert in most cases.
+
+Hybrid Ukulele Types
+
+Recently, another style of ukulele has been developed which has further diversified the ukulele market. Ukulele hybrids - a mixture of the ukulele, and another instrument (like the bass guitar or banjo) have been developed. Previously, these instruments would not have been possible to construct, but due to advancements in technology and the development of different synthetic materials, instruments like the bass guitar ukulele (or the bass ukulele) and even the violin-ukulele have been developed. Hybrids are harder to come across in music stores, although the Bass ukulele is particularly popular as it covers exactly the same range as the bass guitar (but is usually acoustic or semi-acoustic) Therefore it can be used as a 'practice bass' which means the bass player does not need to take a full sized, heavy electric bass and amp traveling. Also, the Bass ukulele is useful in ukulele orchestras, which are becoming increasingly popular too.
+
+Hybrid ukuleles are types of ukulele that have been engineered to include a number of features typically associated with a different instrument. Hybrid instruments are usually made in order to create a different style, sound or feel to music with an instrument that previously didn't exist. Some ukulele hybrids, like the bass ukulele, are beginning to grow in popularity due to social factors (in the case of the bass ukulele, the popularity of ukulele orchestras has seen an increase in the numbers of bass ukulele manufactured and sold). Other hybrid instruments are made for pleasure, and very small numbers of the instrument are manufactured or sold.
+
+Bass Ukulele
+
+The bass ukulele is a hybrid uke which is essentially a small, acoustic version of a bass guitar. Tuned to the same octave as a bass guitar, (E3 A3 D4 G4), this ukulele can have either thick polyurethane strings, or wound ones - although the polyurethane strings are the most common. The polyurethane strings of the bass ukulele have made quite an impression on bass musicians as these strings produce a unique sound which is of a similar depth to that produced by an upright bass. The bass uke is becoming more popular as it is an easier-traveling instrument than the bass guitar (and doesn't compromise on sound), and because it fills out the low-range sound in a ukulele orchestra or treble-based performance group. Bass ukuleles are currently sold with or without frets.
+
+Banjo Ukulele
+
+The banjo ukulele has the string set-up of a soprano ukulele, but with the body of a banjo. Otherwise known as the 'banjolele', the instrument became reasonably popular in the 1920's, and more models of the hybrid instrument are currently being manufactured. The banjo ukulele retains some of its classic banjo sound, with a definite ukulele undertone.
+
+Harp Ukulele
+
+The harp ukulele combines elements of harp and ukulele. Sometimes a harp ukulele will have unfretted strings (like those of a harp) attached to the ukulele with a bridge extension. There are, however, quite a number of different ways in which the harp ukulele has been engineered in order to include aspects of both harp and ukulele. The harp ukulele was first developed in the 1910's, with inspiration drawn from the harp guitar hybrid. The harp ukulele is still quite an uncommon instrument to come across; however a number of different luthiers have experimented with the harp ukulele, mainly during periods when the popularity of the ukulele has peaked.
+
+Guitar Ukulele
+
+The guitar ukulele combines elements of the classical guitar and the tenor ukulele in an instrument known as a 'guitalele'. With six-strings and a small body, the guitar ukulele is a relatively common instrument for a hybrid which is both portable and easier to play for children than a normal-sized guitar. Yamaha is known to be a current manufacturer of the guitar ukulele.
+
+Lap Steel Ukulele
+
+There are various ways to put a lap steel ukulele together, which combine characteristics of lap steel with the ukulele. However, lap steel ukuleles are relatively uncommon. It is possible to play in the style of lap steel (holding the ukulele on your lap and using a metal slide called a steel) with a standard type of ukulele that has high string tension (otherwise known as high 'action').
+
+Variations of Standard Ukulele Types
+
+There are lots of other kinds of ukulele that you may like to investigate. There are many body variations on the traditional soprano uke, and preference on each type of body mainly boils down to personal opinion. Here we have highlighted some of the variations of ukulele you are likely to come across, however this is not a complete list - it pays to note that different types of ukulele are developed all the time, and the popularity of each type can come and go, depending mainly on who is picking them up and playing them!
+
+Sopranino/Piccolo Ukulele
+
+The sopranino ukulele (also known as the piccolo ukulele) is a tiny ukulele, with only around 10 frets. The sopranino ukulele is usually tuned an octave above the baritone ukulele (D5-G5-E5-A6) and is manufactured by some large instrument companies, so is quite widely available. While the sopranino could probably be described as a main type of ukulele (due to its significant difference from the other main types), it is not commonly used and is mostly viewed as a novelty instrument.
+
+8 String Ukulele
+
+The 8-string ukulele is set up rather like a mandolin or a 12-string guitar in that it has 4 sets of 2 pairs of strings, which can be tuned in several different ways, depending on the individual ukulele set-up. An 8-string ukulele can be tuned with the string pairs in the same octave as each other, with each string pairs all an octave apart, or (most commonly) with a mix between the two types of tuning. The most usual 8-string mixed-tuning for a soprano, concert or tenor 8-string is: G4-G3, C3-C4, E3-E3, A4-A4. Tuning this way helps maintain a characteristic ukulele sound while still fleshing out the range. 8-string ukuleles are mainly used for strumming rather than picking.
+
+Pineapple Ukulele
+
+The pineapple ukulele has a half-pineapple shaped body in place of a regular-shaped body. While the pineapple body feature is sometimes thought of as a novelty addition to the ukulele, it actually produces a louder sound (and stronger resonance) than the traditionally-shaped ukulele. The pineapple ukulele body-shape is widely available on soprano and concert ukuleles, though not as popular on the larger types of ukulele.
+
+Cutaway Ukulele
+
+The term 'cutaway' is used to describe a string instrument where the right-hand shoulder has been 'cut back' in order to make playing on the top frets of the instrument easier. Cutaway ukuleles can usually be found in music stores, as this stylistic feature is commonly added to all four main types of ukulele - though it is more commonly found on the concert, tenor and baritone than on the soprano.
+
+Electric Ukulele
+
+Ukuleles can produce sound electronically either through using a pick-up or a plug-in, or by being designed as a fully-electric instrument without a resonant body. Pick-ups or plug-ins on ukuleles are quite common, whereas fully electric instrument are a little rarer, possibly due to their lack of flexibility (and price) as compared to a semi-acoustic. You may wish to use an electric ukulele, or a pick-up with your usual acoustic uke if you perform in front of a large audience, or if you perform in an area with low acoustics where sound can easily be 'lost' (for example, outside).
+
+What odd kinds of ukulele have you come across? What is your favourite type of ukulele? Let us know in the comments below!
