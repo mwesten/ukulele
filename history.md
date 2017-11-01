@@ -1,10 +1,8 @@
 The name 'ukulele' is the traditional Hawaiian name that was given to a small instrument called the machete (machete de braga),
 which was originally developed in the Madeira Islands of Portugal. 
 The machete itself is a descendent of the early European and Middle Eastern plucked stringed instruments 
-(such as the lute), is a member of the guitar family, 
-and goes by several different names including the cavaquinho, braguinha, manchhete and cavaco. 
-The machete was brought into Hawaii by Portuguese immigrants, 
-who moved to the islands to work in the sugar cane fields in the late 1800's.
+(such as the lute), is a member of the guitar family, and goes by several different names including the cavaquinho, braguinha, manchhete and cavaco. 
+The machete was brought into Hawaii by Portuguese immigrants, who moved to the islands to work in the sugar cane fields in the late 1800's.
 Manuel Nunes, Augusto Dias and Jose do Espirito Santo, 
 who arrived in Hawaii on the Ravenscrag in 1879 from the Portuguese Islands of Madeira 
 are believed to have been the first makers of the Hawaiian 'ukulele'.
@@ -12,10 +10,6 @@ are believed to have been the first makers of the Hawaiian 'ukulele'.
 There are several different legends about how the machete got its Hawaiian name; 
 the 'ukulele' - although there is not enough evidence to prove that any one of these stories is, in fact, the truth. 
 The word 'ukulele' itself translates roughly to 'jumping flea' in English. One story of how the ukulele got its name states that when one of the passengers on the Ravenscrag, Joao Fernandes, reached the Honolulu port, he was so overjoyed after four months at sea that he immediately jumped off the ship and began playing folk songs from Madeira on the wharf. The Hawaiians who saw Fernandes play the instrument thought that his fast-moving fingers looked like fleas jumping over the fingerboard - and so the name for the instrument was born. Another account of how the ukulele got its name is based on the understanding that the Englishman Edward Purvis played the instrument. Edward Purvis acted as an Assistant Chamberlain to King David Kalakaua, the last reigning King of Hawaii, and a man who was very influential in the early life of the ukulele. Purvis was thought to have been nicknamed 'ukulele' due to his small stature and his energetic personality. Eventually, it is thought that the instrument that he played for the King also adopted this name. Yet more tales about how the ukulele got its name survive, with several different translations of the term being used as evidence. The last Hawaiian monarch, Queen Lili'uokalani, has been recorded as explaining that the term 'ukulele' in fact means 'the gift that came here' (with 'uku' translating to 'gift or reward' and 'lele' translating to 'to come') which indeed is a much different perspective, and one that has nothing at all to do with fleas!
-
- King Kalakaua and Edward Purvis
-King Kalakaua (center) and
-Edward Purvis (second from left).
 
 After its arrival in Hawaii, the ukulele was quickly adopted into Hawaiian culture. King David Kalakaua was very fond of the small instrument, which is acknowledged as a key factor that led to the ukulele becoming so popular. King Kalakaua was passionate about developing Hawaiian culture in the face of the opposition posed by missionary groups, who themselves saw native cultures as uncivilized, and whose aim was to convert native peoples to Christian worship and Christian values. King Kalakaua promoted the fusion of modern art forms with traditional aspects of Hawaiian culture in order to re-ignite interest in Hawaiian culture. It is King Kalakaua who promoted the ukulele as a Hawaiian instrument, and used the instrument at formal royal functions, to play traditional Hawaiian music, and to accompany hula.
 
