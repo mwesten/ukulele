@@ -19,9 +19,15 @@ Mel Amina
 
 Alfred Apaka
 
+King Bennie Nawahi
 
+Herb Ohta Sr. (Ohta-San)
 
+Herb Ohta Jr
 
+Gabby Pahinui and the Sons of Hawaii
+
+Eddie Bush 
 
 
 
