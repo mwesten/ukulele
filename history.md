@@ -81,8 +81,6 @@ One final aspect of Hawaiian music that was supported and fostered by the missio
 
 While it is unfortunate that the influence of the Christian missionaries on the religious ways of the Hawaiian people resulted in the initial reduction of the use of the hula and chanting in daily life, it did allow for an opening for new musical influences. Later during the reign of King Kalakaua these harmonic and melodic elements had become firmly rooted in the music of Hawai`i which when combined with the traditional chanting created an entirely new style of music that is still in use today. This is true HO`ANALU….to go beyond known boundaries. Here is a theme that unfolds time and time again in the history of Hawaiian music. With the outside world coming into Hawai`i change is inevitable, but what endures through all these changes are the fundamental foundations of the original Hawaiian musical characteristics. The traditions of Hawaiian music have the unique ability to be flexible enough to take on new influences, but strong enough to remain true to the original values and intent.
 
-Please come back as I will next look at the influences of Mexican Ranchera and Jalisco Son Music on modern Hawaiian music. Future posts will cover Portuguese Folk Music of the Madeira Islands, European Royal Music, American Ragtime and Jazz, American Big Band Music, American Country and Folk Music and Caribbean Reggae Music as I explore the theme of the influence of world music on modern Hawaiian music during our World Cup season.
-
 ----
 
 #### 3
