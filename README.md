@@ -1,25 +1,7 @@
 # Ukulele
 
 ## Keywords
-Ukulele (history, makers, performance, players, blog, resources, magazine, journal, virtuoso, lessons, school, festival, film, documentary, radio) ()
-
-| | google | youtube |
-|-|--------|---------|
-|history|~
-|makers
-|performance
-|players
-|blog
-|resource
-|magazine
-|journal
-|virtuoso
-|lessons
-|school
-|festival
-|film
-|documentary
-
+Ukulele | players, blog, magazine, journal, festival
 
 ## Shops
 * http://jcs.com.ua
