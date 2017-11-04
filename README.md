@@ -1,8 +1,3 @@
-# Ukulele
-* http://www.ukulelemag.com/
-* http://worldofukes.co.uk
-* https://kamuke.com
-
 ## Shops
 * http://jcs.com.ua
 * http://musicbrand.com.ua
