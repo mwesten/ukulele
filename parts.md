@@ -1,9 +1,3 @@
-Parts of the Ukulele
-It is important to know the names of the parts of the ukulele so that you can tune, restring and look after your ukulele easily. It also helps to know the parts of the ukulele in case you want to talk about the ukulele with other players; although do keep in mind that some parts of the ukulele are known by multiple names - as such, it's best to be familiar with all of the names used to identify a certain part. In this article we'll run down the common names used to identify the different parts of the ukulele, along with the main features of each part. Feel free to grab your own uke and identify the corresponding parts as we go!
-
-Parts of the Ukulele
-
-parts of the ukulele
 Headstock [also known as the head of the ukulele]
 
 The headstock is the top of the ukulele - the part which holds the tuners. The headstock is also the part of the uke that is furthest away from the body of the ukulele. The headstock is usually made of a solid piece of wood or plastic. It needs to be quite strong to support the tension of the strings and the tuners.
