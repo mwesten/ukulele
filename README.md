@@ -9,6 +9,9 @@
 * http://littleukulele.weebly.com/
 * https://pdfminstrel.wordpress.com/
 * https://liveukulele.com
+* https://ukestuff.wordpress.com/
+* http://www.chordmaster.org/
+* http://ukulele.space
 
 ## Persons
 * KIMO HUSSEY
