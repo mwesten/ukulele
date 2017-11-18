@@ -4,8 +4,6 @@
 * https://4club.com.ua
 
 ## Links
-* http://www.delcamp.net
-* https://repository.royalholloway.ac.uk
 * http://littleukulele.weebly.com/
 * https://pdfminstrel.wordpress.com/
 * https://liveukulele.com
