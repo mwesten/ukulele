@@ -11,6 +11,10 @@
 * https://liveukulele.com
 
 ## Persons
+* KIMO HUSSEY
+* KRIS FUCHIGAMI
+* COREY FUJIMOTO
+* KALEI GAMIAO
 * Joe Carr
 * HERMAN VANDECAUTER
 * Astor Piazzolla
