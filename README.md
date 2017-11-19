@@ -1,3 +1,10 @@
+## Similar instruments
+* Балалайка
+* Домра
+* Лютня
+* Гитара (ренессансная)
+* Мандолина
+
 ## Shops
 * http://jcs.com.ua
 * http://musicbrand.com.ua
