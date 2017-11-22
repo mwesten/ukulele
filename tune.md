@@ -172,27 +172,7 @@ But I don’t want to get to caught up in semantics. I do want to focus on the l
 
 So really this isn’t just a question of whether colonization created an opportunity for the development of open tunings in Hawaii, it is a question of the need. By the 1840s when the Mexican cowboys were brought here and eventually departed, the guitars they left behind were unplayable to the Hawaiian. Anyone who picks up a standard tuned guitar and strums it will tell you that. This is where the illogicalness of the “standard tuning” comes to life. The practical and efficient Hawaiian would be the one who would decide to retune the strings to find something that sounded pleasant. Not the oppressed colonized Hawaiian of simple mathematical conceptions.
 
-And that is all I really wanted to address in this blog post. The commonly held narrative of the development of slack key in Hawaii ignores the analysis of the how colonized peoples created open tunings. And the only accepted opinion of how these tunings were created comes from an ego driven, conflicted, contrarian ethnomusicologist who is no longer around. Where is he? What happened to “the voice” of the native music cultures? It is not my job to air others dirty laundry. Google Bob Brozman suicide and find out for yourself. Let me tell you now the truth is possibly stranger and more disturbing than you are prepared to see.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+The commonly held narrative of the development of slack key in Hawaii ignores the analysis of the how colonized peoples created open tunings. And the only accepted opinion of how these tunings were created comes from an ego driven, conflicted, contrarian ethnomusicologist who is no longer around. Where is he? What happened to “the voice” of the native music cultures? It is not my job to air others dirty laundry. Google Bob Brozman suicide and find out for yourself.
 
 
 
