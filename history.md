@@ -28,9 +28,6 @@ Canada, on the other hand, was one of the first countries to initiate teaching t
 
 The Ukulele Today
 
- Jake Shimabukuro playing the ukulele
-A famous ukulele player, Jake Shimabukuro
-
 The ukulele is once again enjoying a period of popularity with modern audiences around the western world. The uke has been picked up from music stores, (or pulled out of the attic) and is again being celebrated for its versatility, easy-travelling small-size and its ease of learning. The internet has played a significant role in the ukulele boom, with websites and video tutorials being dedicated to providing easy-learning resources for beginners, many of which are frequented by new players in their hundreds.
 
 The ukulele has also been widely celebrated for its increasingly social side. The ease of strumming along to sung melodies and playing together has made this little instrument a popular choice as a second instrument, and has also led to the formation of ukulele clubs, orchestras and social groups around the world. Ukulele performers often encourage concert-goers to bring along their own ukes and join in for a song or two, and group-learning of the ukulele is increasingly popular (as opposed to formal, one-on-one lessons). The ukulele has also been more widely used as a beginners' instrument for children in recent years.
