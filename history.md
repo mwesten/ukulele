@@ -21,12 +21,8 @@ The increasing popularity of the ukulele led to the manufacturing of inexpensive
 
 The ukulele slowly declined in popularity through the 1930's, momentarily being revived in the late-1940's through to the 1950's with some American servicemen bringing the instrument home with them from Hawaii after World War Two. The popularity of pop-rock music caused the ukulele to fade into the background in the 1960's, although it still existed in mainstream consciousness with the likes of The Arthur Godfrey Show and Tiny Tim's 1968 hit Tiptoe through the Tulips. The insanely popular band 'The Beatles' were very fond of the ukulele, however rarely played the instrument and despite their endorsement the little ukulele lay very quietly in its case from the 1970's until its revival in the 1990's.
 
-The Ukulele Around the World
-
 Other countries have also adopted the humble ukulele into their musical repertoires, including (most notably) Japan and Canada. The ukulele was introduced into Japan in the early 1900's, and was adopted along with Hawaiian and Jazz music. While the 'western' instrument was banned during World War Two, the popularity of the instrument surged after the war. 
 Canada, on the other hand, was one of the first countries to initiate teaching the ukulele in schools (aside from Hawaii) and many music students learnt the ukulele under the school music program devised by John Doane.
-
-The Ukulele Today
 
 The ukulele is once again enjoying a period of popularity with modern audiences around the western world. The uke has been picked up from music stores, (or pulled out of the attic) and is again being celebrated for its versatility, easy-travelling small-size and its ease of learning. The internet has played a significant role in the ukulele boom, with websites and video tutorials being dedicated to providing easy-learning resources for beginners, many of which are frequented by new players in their hundreds.
 
