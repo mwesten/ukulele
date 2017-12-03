@@ -7,18 +7,10 @@ Manuel Nunes, Augusto Dias and Jose do Espirito Santo,
 who arrived in Hawaii on the Ravenscrag in 1879 from the Portuguese Islands of Madeira 
 are believed to have been the first makers of the Hawaiian 'ukulele'.
 
-The increasing popularity of the ukulele led to the manufacturing of inexpensive models which gave many people access to learning the ukulele. The ukulele built up a reputation as a good beginner's instrument because of its relatively low price and small, portable size. Thousands of ukuleles were produced through the 1920's, and the ukulele became one of the musical icons of the Jazz age.
-
 The ukulele slowly declined in popularity through the 1930's, momentarily being revived in the late-1940's through to the 1950's with some American servicemen bringing the instrument home with them from Hawaii after World War Two. The popularity of pop-rock music caused the ukulele to fade into the background in the 1960's, although it still existed in mainstream consciousness with the likes of The Arthur Godfrey Show and Tiny Tim's 1968 hit Tiptoe through the Tulips. The insanely popular band 'The Beatles' were very fond of the ukulele, however rarely played the instrument and despite their endorsement the little ukulele lay very quietly in its case from the 1970's until its revival in the 1990's.
 
 Other countries have also adopted the humble ukulele into their musical repertoires, including (most notably) Japan and Canada. The ukulele was introduced into Japan in the early 1900's, and was adopted along with Hawaiian and Jazz music. While the 'western' instrument was banned during World War Two, the popularity of the instrument surged after the war. 
 Canada, on the other hand, was one of the first countries to initiate teaching the ukulele in schools (aside from Hawaii) and many music students learnt the ukulele under the school music program devised by John Doane.
-
-The ukulele is once again enjoying a period of popularity with modern audiences around the western world. The uke has been picked up from music stores, (or pulled out of the attic) and is again being celebrated for its versatility, easy-travelling small-size and its ease of learning. The internet has played a significant role in the ukulele boom, with websites and video tutorials being dedicated to providing easy-learning resources for beginners, many of which are frequented by new players in their hundreds.
-
-The ukulele has also been widely celebrated for its increasingly social side. The ease of strumming along to sung melodies and playing together has made this little instrument a popular choice as a second instrument, and has also led to the formation of ukulele clubs, orchestras and social groups around the world. Ukulele performers often encourage concert-goers to bring along their own ukes and join in for a song or two, and group-learning of the ukulele is increasingly popular (as opposed to formal, one-on-one lessons). The ukulele has also been more widely used as a beginners' instrument for children in recent years.
-
-Although the ukulele is still associated with traditional Hawaiian music and culture, the development of different types of ukulele has led to the popularization of the instrument in many different musical settings. Over the past twenty years the ukulele revival has maintained momentum, with a number of ukulele players becoming very popular well into the new millennium. The 1990's ukulele revival has also led to the instrument being used increasingly in popular (pop) music performances and recordings, as well as being a common instrument for performing covers of popular music too.
 
 ------------------------------------------------------------
 
